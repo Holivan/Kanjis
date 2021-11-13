@@ -1,0 +1,2 @@
+# Kanjis
+Primeiros kanjis
